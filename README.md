@@ -16,4 +16,4 @@ Made with ❤️ by :-
 Karandeep Singh Sehgal (ME)      Profile :- https://github.com/karandeeppotato
 
 
-Aayush Chhikara                  Profile :- []
+Aayush Chhikara                  Profile :- https://github.com/Aayush-Chhikara
